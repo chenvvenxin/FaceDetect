@@ -13,7 +13,6 @@ I love AHUT!  I love BUCT!  I love BIT!
 
 Here is my contact information:
 
-QQ:1178586749 Wechat:cwx_1997 
-Email:chenvvenxin@outlook.com
+QQ:1178586749     Wechat:cwx_1997     Email:chenvvenxin@outlook.com
 
 :)
