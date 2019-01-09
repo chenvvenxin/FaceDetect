@@ -16,3 +16,7 @@ Here is my contact information:
 QQ:1178586749     Wechat:cwx_1997     Email:chenvvenxin@outlook.com
 
 :)
+_________________________________________分割线(2019.01.09)_________________________________________
+yeah,I successfully become a student of BIT
+My tutor is Zhangting!
+Have a good begining!
